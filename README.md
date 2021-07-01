@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @macius72
+- 👋 Cześć jestem @macius72
 - 👀 Interesuje się grami na platformie PC.
 - 🌱 Obecnie uczę składać komputery
 - 📫 Mój Gmail w razie kontaktu ---> @rradas694@gmail.com
